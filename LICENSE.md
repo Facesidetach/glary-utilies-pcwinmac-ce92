@@ -1,4 +1,4 @@
-# 
+# Natif Glary Utilities préréglages pour Mac OS | Personnalisé Glary Utilities préréglages pour PC Windows. Avec intégration cloud et vidage de la corbeille — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
